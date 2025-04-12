@@ -1,0 +1,1 @@
+We offer ongoing automation support at $500/month. Includes strategy + monthly updates.

@@ -1,0 +1,3 @@
+- [ ] Demo delivered
+- [ ] SOP provided
+- [ ] Feedback collected
